@@ -23,7 +23,10 @@ $${\color{lightblue}PLEASE \space \color{lightblue}INT! \space \color{lightblue}
 $${\color{lightblue}ANY \space \color{lightblue}PRONOUNS}$$ 
 
  <sup>[strawpage](https://diizy.straw.page)
- <p align ="center"> ∂ιᴢᴢყ ⊹ ԃɾєαмєɾ <img width="30" height="15" src = "https://github.com/user-attachments/assets/46b7de8f-8115-4784-97a8-b1d1f48831c2"
+<p align="center">
+$${\color{lightblue}∂ιᴢᴢყ \space \color{lightblue}⊹ \space \color{lightblue}ԃɾєαмєɾ}$$
+<p align="center">
+<img width="30" height="15" src = "https://github.com/user-attachments/assets/46b7de8f-8115-4784-97a8-b1d1f48831c2"
 
 </p>
 <p align="center">

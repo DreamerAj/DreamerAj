@@ -25,11 +25,3 @@ $${\color{lightblue}ANY \space \color{lightblue}PRONOUNS}$$
  <sup>[strawpage](https://diizy.straw.page)
 <p align="center">
 $${\color{lightblue}∂ιᴢᴢყ \space \color{lightblue}⊹ \space \color{lightblue}ԃɾєαмєɾ}$$
-<p align="center">
-<img width="30" height="15" src = "https://github.com/user-attachments/assets/46b7de8f-8115-4784-97a8-b1d1f48831c2"
-
-</p>
-<p align="center">
-<img width=400 src="https://github.com/user-attachments/assets/90f351fa-413b-467c-869b-03e059be739f">
-</p>
-

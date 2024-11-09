@@ -1,6 +1,10 @@
 </p>
 <p align="center">
-<img width=400 src="https://github.com/user-attachments/assets/840d30f0-b50f-4f5b-a28a-01920a52dc3d"
+<img width=400 src="https://github.com/user-attachments/assets/22f4afad-6572-4173-8d11-a5dd7aa76029"
+</p>
+</p>
+<p align="center">
+<img width=400 src="https://github.com/user-attachments/assets/9a246388-96c5-417d-9c3b-dc8c96807206"
 </p>
 
 
@@ -15,8 +19,8 @@
   <div align="center">
 
 
-<p align ="center"> PLEASE INT! - Discord: Dizyys </p>
-<p align ="center"> ANY PRONOUNS~<img width="40" height="40" src = "https://github.com/user-attachments/assets/f4bed763-45a2-45e5-bb93-2fa7181aefdf"> 
+$${\color{lightblue}PLEASE \space \color{lightblue}INT! \space \color{lightblue}- \space \color{lightblue}Discord: \space \color{lightblue} dizyys}$$
+$${\color{lightblue}ANY \space \color{lightblue}PRONOUNS}$$ 
 
  <sup>[strawpage](https://diizy.straw.page)
  <p align ="center"> ∂ιᴢᴢყ ⊹ ԃɾєαмєɾ <img width="30" height="15" src = "https://github.com/user-attachments/assets/46b7de8f-8115-4784-97a8-b1d1f48831c2"
@@ -25,3 +29,4 @@
 <p align="center">
 <img width=400 src="https://github.com/user-attachments/assets/90f351fa-413b-467c-869b-03e059be739f">
 </p>
+

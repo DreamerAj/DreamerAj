@@ -1,15 +1,11 @@
 </p>
 <p align="center">
-<img width=400 src="https://github.com/user-attachments/assets/22f4afad-6572-4173-8d11-a5dd7aa76029"
+<img width=600 src="https://github.com/user-attachments/assets/4bc2c925-8f97-4260-a7de-402e4e17a1db"
 </p>
-</p>
-<p align="center">
-<img width=400 src="https://github.com/user-attachments/assets/9a246388-96c5-417d-9c3b-dc8c96807206"
 </p>
 
-
 <p align="center">
-<img width=220 src="https://github.com/user-attachments/assets/e860d702-b6a9-4c08-841d-83ac0201400a"
+<img width=220 src="https://github.com/user-attachments/assets/83e0030d-0d35-4a2a-9db1-968ff7d9a640"
 </p>
 
  
@@ -19,9 +15,14 @@
   <div align="center">
 
 
-$${\color{lightblue}PLEASE \space \color{lightblue}INT! \space \color{lightblue}- \space \color{lightblue}Discord: \space \color{lightblue} dizyys}$$
-$${\color{lightblue}ANY \space \color{lightblue}PRONOUNS}$$ 
+$${\color{pink}PLEASE \space \color{pink}INT! \space \color{pink}- \space \color{pink}Discord: \space \color{pink} dizyys}$$
+$${\color{pink}ANY \space \color{pink}PRONOUNS}$$ 
 
  <sup>[strawpage](https://diizy.straw.page)
 <p align="center">
-$${\color{lightblue}∂ιᴢᴢყ \space \color{lightblue}⊹ \space \color{lightblue}ԃɾєαмєɾ}$$
+$${\color{lightyellow}∂ιᴢᴢყ \space \color{lightyellow}⊹ \space \color{lightyellow}ԃɾєαмєɾ}$$
+
+</p>
+<p align="center">
+<img width=600 src="https://github.com/user-attachments/assets/c6cc7da3-e312-42fe-b56b-34e47265adb9"
+</p>

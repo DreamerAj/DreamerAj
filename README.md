@@ -18,7 +18,7 @@
 $${\color{pink}PLEASE \space \color{pink}INT! \space \color{pink}- \space \color{pink}Discord: \space \color{pink} dizyys}$$
 $${\color{pink}ANY \space \color{pink}PRONOUNS}$$ 
 
- <sup>[strawpage](https://diizy.straw.page) ✚ [Rentry](https://rentry.co/8birot5b)
+ <sup>[strawpage](https://diizy.straw.page) ✚ [Rentry](https://rentry.co/7x7ozd9q)
 <p align="center">
 $${\color{lightyellow}∂ιᴢᴢყ \space \color{lightyellow}⊹ \space \color{lightyellow}ԃɾєαмєɾ}$$
 

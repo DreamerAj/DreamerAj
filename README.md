@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-<img width=220 src="https://github.com/user-attachments/assets/83e0030d-0d35-4a2a-9db1-968ff7d9a640"
+<img width=220 src="https://github.com/user-attachments/assets/610d1f6a-e124-4930-923e-afd87b58f474"
 </p>
 
  
@@ -15,8 +15,8 @@
   <div align="center">
 
 
-$${\color{pink}PLEASE \space \color{pink}INT! \space \color{pink}- \space \color{pink}Discord: \space \color{pink} dizyys}$$
-$${\color{pink}ANY \space \color{pink}PRONOUNS}$$ 
+$${\color{lightyellow}PLEASE \space \color{lightyellow}INT! \space \color{lightyellow}- \space \color{lightyellow}Discord: \space \color{lightyellow} dizyys}$$
+$${\color{lightyellow}ANY \space \color{lightyellow}PRONOUNS}$$ 
 
  <sup>[strawpage](https://diizy.straw.page) ✚ [Rentry](https://rentry.co/7x7ozd9q)
 <p align="center">
@@ -24,5 +24,5 @@ $${\color{lightyellow}∂ιᴢᴢყ \space \color{lightyellow}⊹ \space \color
 
 </p>
 <p align="center">
-<img width=600 src="https://github.com/user-attachments/assets/c6cc7da3-e312-42fe-b56b-34e47265adb9"
+<img width=600 src="https://github.com/user-attachments/assets/35313963-e41a-4ed4-8965-4d11fdc603e3"
 </p>

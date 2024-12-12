@@ -1,11 +1,11 @@
 </p>
 <p align="center">
-<img width=600 src="https://github.com/user-attachments/assets/4bc2c925-8f97-4260-a7de-402e4e17a1db"
+<img width=500 src="https://github.com/user-attachments/assets/0e8dd2c2-65d7-4b7b-a37f-9e05e7158240"
 </p>
 </p>
 
 <p align="center">
-<img width=300 height=300 src="https://github.com/user-attachments/assets/610d1f6a-e124-4930-923e-afd87b58f474"
+<img width=500 height=500 src="https://github.com/user-attachments/assets/4503534f-557f-4cb9-bffc-78ee538dc251"
 </p>
 
  
@@ -15,14 +15,14 @@
   <div align="center">
 
 
-$${\color{lightyellow}PLEASE \space \color{lightyellow}INT! \space \color{lightyellow}- \space \color{lightyellow}Discord: \space \color{lightyellow} dizyys}$$
-$${\color{lightyellow}ANY \space \color{lightyellow}PRONOUNS}$$ 
+$${\color{lightblue}PLEASE \space \color{lightblue}INT! \space \color{lightblue}- \space \color{lightblue}Discord: \space \color{lightblue} dizyys}$$
+$${\color{lightblue}ANY \space \color{lightblue}PRONOUNS}$$ 
 
  <sup>[strawpage](https://diizy.straw.page) ✚ [Rentry](https://rentry.co/7x7ozd9q)
 <p align="center">
-$${\color{lightyellow}∂ιᴢᴢყ \space \color{lightyellow}⊹ \space \color{lightyellow}ԃɾєαмєɾ}$$
+$${\color{salmon}∂ιᴢᴢყ \space \color{salmon}⊹ \space \color{salmon}ԃɾєαмєɾ}$$
 
 </p>
 <p align="center">
-<img width=600 src="https://github.com/user-attachments/assets/35313963-e41a-4ed4-8965-4d11fdc603e3"
+<img width=800 src="https://github.com/user-attachments/assets/b9988829-5e60-4842-be1d-36ab0d374fea"
 </p>

@@ -1,11 +1,11 @@
 </p>
 <p align="center">
-<img width=500 src="https://github.com/user-attachments/assets/0e8dd2c2-65d7-4b7b-a37f-9e05e7158240"
+<img width=700 height=100 src="https://github.com/user-attachments/assets/caf5a382-e443-42c6-8ae1-219588c93f77"
 </p>
 </p>
 
 <p align="center">
-<img width=500 height=500 src="https://github.com/user-attachments/assets/4503534f-557f-4cb9-bffc-78ee538dc251"
+<img width=900 height=300 src="https://github.com/user-attachments/assets/28aef00e-33ee-435c-b6e1-f0b18db98f41"
 </p>
 
  
@@ -15,14 +15,15 @@
   <div align="center">
 
 
-$${\color{lightblue}PLEASE \space \color{lightblue}INT! \space \color{lightblue}- \space \color{lightblue}Discord: \space \color{lightblue} dizyys}$$
-$${\color{lightblue}ANY \space \color{lightblue}PRONOUNS}$$ 
+$${\color{#939393}PLEASE \space \color{#939393}INT!}$$ 
+$${\space \color{#E8CFB4}- \space \color{#DEBF9C}Discord: \space \color{#DEBF9C} dizyys}$$
+$${\color{#E8CFB4}ANY \space \color{#E8CFB4}PRONOUNS}$$ 
 
- <sup>[strawpage](https://diizy.straw.page) ✚ [Rentry](https://rentry.co/dizyys)
+[strawpage](https://diizy.straw.page) ✚ [Rentry](https://rentry.co/dizyys)
 <p align="center">
-$${\color{salmon}∂ιᴢᴢყ \space \color{salmon}⊹ \space \color{salmon}ԃɾєαмєɾ}$$
+$${\color{#E8CFB4}∂ιᴢᴢყ \space \color{#939393}⊹ \space \color{#E8CFB4}ԃɾєαмєɾ}$$
 
 </p>
 <p align="center">
-<img width=800 src="https://github.com/user-attachments/assets/b9988829-5e60-4842-be1d-36ab0d374fea"
+<img width=900 height=300 src="https://github.com/user-attachments/assets/d1898dc8-65d0-4d79-b980-9f9e2e66a800"
 </p>

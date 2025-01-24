@@ -19,7 +19,7 @@ $${\color{#939393}PLEASE \space \color{#939393}INT!}$$
 $${\space \color{#E8CFB4}- \space \color{#DEBF9C}Discord: \space \color{#DEBF9C} dizyys}$$
 $${\color{#E8CFB4}ANY \space \color{#E8CFB4}PRONOUNS}$$ 
 
-[strawpage](https://diizy.straw.page) ✚ [Rentry](https://rentry.co/dizyys)
+[strawpage](https://diizy.straw.page) ✚ [Rentry](https://rentry.co/dizziy))
 <p align="center">
 $${\color{#E8CFB4}∂ιᴢᴢყ \space \color{#939393}⊹ \space \color{#E8CFB4}ԃɾєαмєɾ}$$
 

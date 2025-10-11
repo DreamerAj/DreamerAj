@@ -1,5 +1,5 @@
 
 <p align="center">
- HUHUHIHIHeheheheh "ex-champ" hahaBAHAHAHAHAHHAHAHHA
+ I'm not normal about my friends I CAN'T STOP STALKING THEM.
 
 

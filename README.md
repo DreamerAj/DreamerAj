@@ -1,5 +1,5 @@
 
 <p align="center">
- I'm not normal about my friends I CAN'T STOP STALKING THEM.
+ let's pretend I'm not going insane because A SPECIFIC PERSON didn't answer my messages for two entire months </3
 
 

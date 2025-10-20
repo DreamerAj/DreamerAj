@@ -1,5 +1,5 @@
 
 <p align="center">
- let's pretend I'm not going insane because A SPECIFIC PERSON didn't answer my messages for two entire months </3
+ I fucking hate myself and what is making me feel upset </3
 
 

@@ -1,5 +1,5 @@
 
 <p align="center">
- yay I'm not cooked
+ ok I lost all my courage to talk with my own friends(imagine)
 
 

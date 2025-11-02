@@ -1,4 +1,4 @@
 
 <p align="center">
- me realizing I have been stalking the same person for MONTHS
+ disliking someone even though they did nothing wrong
 

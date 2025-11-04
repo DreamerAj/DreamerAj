@@ -1,4 +1,4 @@
 
 <p align="center">
- I FUCKING HATE BEING MISUNDERSTOOD, I'M JUST TRYING TO BE FRIENDLY
+ is their fucking fault.
 

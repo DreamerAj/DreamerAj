@@ -1,4 +1,4 @@
 
 <p align="center">
- disliking someone even though they did nothing wrong
+ I FUCKING HATE BEING MISUNDERSTOOD, I'M JUST TRYING TO BE FRIENDLY
 

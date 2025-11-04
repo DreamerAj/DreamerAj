@@ -1,4 +1,4 @@
 
 <p align="center">
- is their fucking fault.
+ stfu dizzy they already apologized there's no reason to keep this grudge
 

@@ -1,4 +1,4 @@
 
 <p align="center">
- stfu dizzy they already apologized there's no reason to keep this grudge
+ <img src="https://github.com/user-attachments/assets/3e0a1aa0-7cdf-47d6-beba-91e1f4cf32ae">
 

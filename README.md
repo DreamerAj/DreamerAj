@@ -1,4 +1,10 @@
 
 <p align="center">
- <img src="https://github.com/user-attachments/assets/3e0a1aa0-7cdf-47d6-beba-91e1f4cf32ae">
+ the fear of my friends hating me.
+ <p align="center">
+ the fear of not being enough for them.
+  <p align="center">
+ the fear of being annoying.
+   <p align="center">
+ the fear of losing my friends once again.
 

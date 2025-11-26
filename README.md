@@ -1,4 +1,4 @@
 
 <p align="center">
- I didnt lose a friend, they lost me 😎
+ I'd rather die than be with you /lyr
 

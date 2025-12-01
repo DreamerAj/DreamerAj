@@ -1,4 +1,4 @@
 
 <p align="center">
- I might possibly me a Drayton fictkin
+ just a Drayton fiction kin that loves his friend Kieran /p
 

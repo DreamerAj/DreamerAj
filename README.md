@@ -1,4 +1,4 @@
 
 <p align="center">
- me wondering if I relate more to One or Pencil(I'm cooked)
+ hi I'm dizzy and I fucking hate Lida from Pokemon legends ZA, you can ask me why tho
 

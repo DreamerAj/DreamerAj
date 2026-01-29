@@ -1,4 +1,4 @@
 
 <p align="center">
- idk if I'm either One or if I want to kiss One
+ why fictkin haters are so dumb sob emoji sob emoji
 

@@ -1,3 +1,3 @@
 
 <p align="center">
- Hi i'm One's wife + doubles iwc 😵
+hi hello int pls just a lil reminder I'm extremely shy

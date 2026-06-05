@@ -1,3 +1,3 @@
 
 <p align="center">
-I love uhhh uh unnn uh yeah
+CURSE THAT POO POO PILLOW!!!
